@@ -1,1 +1,1 @@
-Welcome on my personnal GitHub 👋
+Welcome on my GitHub 👋
